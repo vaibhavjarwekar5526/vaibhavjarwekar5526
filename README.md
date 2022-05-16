@@ -19,7 +19,7 @@ a lasting impact on user experience.
 
 - 📫 How to reach me **vaibhavjarwekar5526@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Q0jYJW1R3REvHbTWbj-oKxHRHjT4JJ9k/view?usp=sharing](https://drive.google.com/file/d/1Q0jYJW1R3REvHbTWbj-oKxHRHjT4JJ9k/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1lOq1gld8Axg4szO0YB5Zv1UjwO_PFylf/view?usp=sharing](https://drive.google.com/file/d/1lOq1gld8Axg4szO0YB5Zv1UjwO_PFylf/view?usp=sharing)
 
 - ⚡ Hobbies **Coding, Listening to Music, Watching Movies, Playing Badminton**
 
