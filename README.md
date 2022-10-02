@@ -13,13 +13,10 @@ a lasting impact on user experience.
 
 - 🌱 I’m currently learning **Backend Development**
 
-- 👨‍💻 All of my projects are available at [https://vaibhav-jarwekar-portfolio.vercel.app/](https://vaibhav-jarwekar-portfolio.vercel.app/)
 
 - 💬 Ask me about **MERN Stack**
 
 - 📫 How to reach me **vaibhavjarwekar5526@gmail.com**
-
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lOq1gld8Axg4szO0YB5Zv1UjwO_PFylf/view?usp=sharing](https://drive.google.com/file/d/1lOq1gld8Axg4szO0YB5Zv1UjwO_PFylf/view?usp=sharing)
 
 - ⚡ Hobbies **Coding, Listening to Music, Watching Movies, Playing Badminton**
 
